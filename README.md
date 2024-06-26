@@ -1,4 +1,4 @@
-Privacy Policy for Rounder
+Privacy Policy for Open Course
 
 Last updated: April 1, 2024
 
