@@ -31,4 +31,4 @@ This policy is effective as of April 1, 2024.
 
 Contact Us
 
-If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at theopencourse.9.18@gmail.com.
+If you have any questions, data deltione requests or suggestions about our Privacy Policy, do not hesitate to contact us at golf@theopencourse.com.
